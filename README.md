@@ -1,6 +1,6 @@
 ## hi there , i'm Nesrine ✨</br>
 student at Esprit. M 💻</br>
-im patient about creating sites and everything
+im patient about AI and data 
 👩🏾‍💻</br>
 insta : https://www.instagram.com/narinaxadouni/</br>
 
