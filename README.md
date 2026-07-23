@@ -1,6 +1,7 @@
 ## hi there , i'm Nesrine ✨</br>
-prepa student at Esprim 💻</br>
-i create apps and sites 👩🏾‍💻</br>
+student at Esprit. M 💻</br>
+im patient about creating sites and everything
+👩🏾‍💻</br>
 insta : https://www.instagram.com/narinaxadouni/</br>
 
 # 💻 Tech Stack:
